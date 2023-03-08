@@ -1,4 +1,4 @@
-# Hi there, I'm Maxim - aka Maksimchik 👋 
+# Hi there, I'm Maxim - aka Lua Thingy👋 
 
 
 ## I'm a 14y.o boy from Ukraine 💛💙
