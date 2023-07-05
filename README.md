@@ -1,1 +1,1 @@
-# Haiii, that Maksymmm meooww
+# Haiii, thats Maksymmm meooww
